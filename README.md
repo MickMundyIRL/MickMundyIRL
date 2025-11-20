@@ -1,1 +1,1 @@
-<div style="width:100%;height:0;padding-bottom:20%;position:relative;"><iframe src="https://giphy.com/embed/hMaR941eW1aJkFBlwR" width="100%" height="100%" style="position:absolute" frameBorder="0" class="giphy-embed" allowFullScreen></iframe></div><p><a href="https://giphy.com/stickers/autism-autistic-af-hMaR941eW1aJkFBlwR">via GIPHY</a></p>
+![til](https://raw.githubusercontent.com/hashrocket/hr-til/master/app/assets/images/banner.png)
