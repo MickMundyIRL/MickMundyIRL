@@ -1,1 +1,1 @@
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+![hippo](https://giphy.com/stickers/autism-autistic-af-hMaR941eW1aJkFBlwR)
