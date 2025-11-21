@@ -1,5 +1,3 @@
 ![giphy](https://github.com/user-attachments/assets/b7bc7d7f-ef34-4723-ad6c-58c12f054f7e)
-![giphy](https://github.com/user-attachments/assets/a9be173d-1cbb-44ea-a3a2-2306ff3c2de8)
-![giphy](https://github.com/user-attachments/assets/17481426-2136-4fc4-830f-3fef56975531)
-![giphy](https://github.com/user-attachments/assets/2010ad91-56aa-48b4-bcde-8adc7ba11302)
 ![punch-out-wii-punch-out](https://github.com/user-attachments/assets/83365bb9-2813-470e-bbf2-0c8fdfa6d8fe)
+# hey!! follow me on twitter or something ^_^
